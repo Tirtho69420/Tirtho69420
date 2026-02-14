@@ -2,7 +2,7 @@
 - 👀 I’m interested in men jk QML
 - 🌱 I’m currently learning python, Java and C++
 - 💞️ I’m looking to collaborate on java
-- 📫 How to reach me: tirtharaj2008debnath@gmail.com
+- 📫 How to reach me: gng idk
 - 😄 Pronouns: homeboy :P
 - ⚡ Fun fact: idk
 
